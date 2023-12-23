@@ -3,7 +3,7 @@ whbrnejwglekbrmôg
 hôwenhklwkhwelnwhl
 ôwbrkmneltgmlf
 heôwhewkmôhwmhôwe
-wkrneltfmôl,
+wkrneltfmôl,kglenwkhnlw
 hnkweklhweknlkhlwegjewjjewj
 hôlekwnhwklehnklewknl
 gôwmekhwemkhweklh
