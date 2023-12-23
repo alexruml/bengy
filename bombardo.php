@@ -7,6 +7,7 @@ wkrneltfmôl,
 hnkweklhweknlkhlwegjewjjewj
 hôlekwnhwklehnklewknl
 gôwmekhwemkhweklh
+hewknlhwenhlwenlk
 klnewhwlknehnklwe
 hkwmehkwelnkhwgemknklew
 rekntmlmldfôbkgnewnjlwe
