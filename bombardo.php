@@ -12,6 +12,7 @@ gôwmekhwemkhweklh
 hlwelhewôhmlweôlhwemôl
 lknewgwekhkwllkew
 hewknlhwenhlwenlk
+lkngewgkewgewlkkn
 hbjrewkhnwehlnkwe
 lknewkgknelwnglkwe
 ophewpohojwepohgejpow
