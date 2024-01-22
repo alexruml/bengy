@@ -16,6 +16,7 @@ hôlekwnhwklehnklewknlň
 lknweklhkwleklmhew
 khlewnlhlnkweklewnl
 gôwmekhwemkhweklh
+hwhôewhwôlj
 nhkwehnweklnhklew
 ijhwnevenjlw
 gpúkwepohowehkopew
