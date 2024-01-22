@@ -12,7 +12,8 @@ wkrneltfmôl,kglenwkhnlw
 hoewhwlmôhmlwe
 hnkweklhweknlkhlwegjewjj
 hlewhnkwehweklewj
-hôlekwnhwklehnklewknl
+hôlekwnhwklehnklewknlň
+lknweklhkwleklmhew
 khlewnlhlnkweklewnl
 gôwmekhwemkhweklh
 nhkwehnweklnhklew
